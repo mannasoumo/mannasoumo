@@ -10,7 +10,5 @@
 
 💬 Ask me about CSS
 
-📫 How to reach me: soumyadeepm93@gmail.com
-
 ⚡ Fun fact: lost two years of college due to covid
 
